@@ -7,3 +7,5 @@ no
 
 
 yes
+
+accept the gay
